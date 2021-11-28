@@ -16,7 +16,7 @@ Copyright 2008-2021 Sazumivicky
 
 --- 
 
-Initially created by [Marko Denic](https://markodenic.com) on [Twitter](https://twitter.com/denicmarko/status/1277492413032992768).
+Initially created by [Sazumi Vicky](https://sazumi.my.id) on [Facebook](https://facebook.com/sazumivicky09).
 
 ---
 
